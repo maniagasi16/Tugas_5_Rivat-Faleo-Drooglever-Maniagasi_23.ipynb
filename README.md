@@ -1,0 +1,1 @@
+# Tugas_5_Rivat-Faleo-Drooglever-Maniagasi_23.ipynb
